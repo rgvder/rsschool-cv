@@ -1,1 +1,1 @@
-https://rgvder.github.io/rsschool-cv/cv
+https://rgvder.github.io/rsschool-cv/
